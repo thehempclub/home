@@ -1,2 +1,8 @@
 # home
 All our Hemp Club Files
+Jonathan Tobin
+Has been an organic farmer for over 40 years living and working in Cornwall all his life. Jonathan was a founder of The Cornish Hemp Company in 1995 and grew trial crops of Hemp for 3 years experimenting with different planting, and cropping techniques. Producing hemp for fibre and hemp seed for oil. Jonathan has a very deep understanding of sustainable farming, organic growing and the cannabis plant.
+Joshua Tobin
+Joshua grew up on an organic farm in Cornwall which grew hemp. Joshua has an ingrained knowledge of organic farming and sustainable agriculture. For nearly 20 years, Joshua has worked mostly for High-Tech companies and has become a specialist in E-commerce, Algorithmic Trading and Online Gaming. Leading the development of easyJet.com for nearly 4 years, working for a hedge fund making automated trading algorithms, and leading mobile app development for some well known brands such as MoneySupermarket and William Hill are a few of his notable achievements. https://www.linkedin.com/in/joshuatobin/
+Nicholas Hill
+Nicholas has been in the high end Antiques market all his life, dealing with new customers and an existing database.  He helped propel Jeremy Ltd (the family business) into the 1990’s with his interest in technology and digitised his father's business in 1991. He has excellent connections in the world wide hemp/cannabis growers and fundraisers markets alike.  From 1995 Nicholas was on the hemp farm helping with harvests.  Having had recent first hand experience of the benefits of CBD, helping his wife recover 95% of her fibromyalgia ailments, he has decided to immerse himself into the growers world.  https://www.linkedin.com/in/nicholashillantiques/
